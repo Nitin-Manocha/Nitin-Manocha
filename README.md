@@ -2,8 +2,7 @@
 
 ### 🚀 Aerospace & Defense Strategist | Quality Assurance | Program Management  
 
-📧 Email: [ernitin1989@gmail.com](mailto:ernitin1989@gmail.com)  
-📞 Phone: +91-8369527124  
+📧 Email: [ernitin1189@gmail.com](mailto:ernitin1189@gmail.com)  
 🔗 [LinkedIn Profile](https://linkedin.com/in/nitinm-iisciim)  
 
 ---
